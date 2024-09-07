@@ -29,4 +29,11 @@ For the dog I would like for it to have a little bit more realism compared to th
 
 **Main comments and wants**
 
-I want the bunny to represent a filling of life and joy through the color that it brings to the dog, when the bunny is colored in, it should be white and i want the vibrant color of the bunny to start to leak into the dog, this representation is very important to me, the dog is also white as in the pictures. Besides that to summarize, I'd like the bunny to be as identical to the picture where the dog is a little bit sharper, a tiny bit more realistic, I'd like the ratio of the image to be similar to the main design reference posted above, Bunny and the dog are both white but I don't want the dog to be completely colored in, just colored in at points of contact of the bunny in a way that shows that the bunny gives that color to the dog, possibly a slight smile on the dog as well.
+I want the bunny to represent a filling of life and joy through the color that it brings to the dog, when the bunny is colored in, it should be white and i want the vibrant color of the bunny to start to leak into the dog, this representation is very important to me, the dog is also white as in the pictures. Besides that to summarize, I'd like the bunny to be as identical to the picture (including the pink) where the dog is a little bit sharper, a tiny bit more realistic, I'd like the ratio of the image to be similar to the main design reference posted above, Bunny and the dog are both white but I don't want the dog to be completely colored in, just colored in at points of contact of the bunny in a way that shows that the bunny gives that color to the dog, possibly a slight smile on the dog as well. I would like this put on my left peck. About 6.5-7 inches in length/height and 5 inches in width.
+
+![Length](https://github.com/user-attachments/assets/b45cf794-b19d-4cbb-a0f4-cf0ccae81ba6)
+
+![Width](https://github.com/user-attachments/assets/a15d0b11-dd03-43b6-a2e9-feefbb27cb1b)
+
+Thank you, please let me know if you need anymore information 
+
