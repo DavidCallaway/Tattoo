@@ -13,3 +13,5 @@ Hello! My name is David and I wanted to create this page to help me in explainin
 
 ![Bunny Details](https://github.com/user-attachments/assets/77ec9fa3-d3e9-4bf7-8dc4-2a87e251df63)
 
+I would like the bunny to look as identical to this image above as possible.
+
