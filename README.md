@@ -28,3 +28,7 @@ For the dog I would like for it to have a little bit more realism compared to th
 ![dog reference4](https://github.com/user-attachments/assets/a28516cd-a563-4287-811e-c2213d115c6c)
 
 ![Dog reference5](https://github.com/user-attachments/assets/7f52a5e2-8f0d-4eed-8e09-88ef0c4a590a)
+
+**Main comments and wants**
+
+I want the bunny to represent a filling of life and joy through the color that it brings to the dog, when the bunny is colored in, it should be white and i want the vibrant color of the bunny to start to leak into the dog, this representation is very important to me, the dog is also white as in the pictures.
