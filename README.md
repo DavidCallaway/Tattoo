@@ -6,4 +6,6 @@ Hello! My name is David and I wanted to create this page to help me in explainin
 
 **Main Design**
 
+![Main Design](Pictures/Main design.jpg)
+
 
